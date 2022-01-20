@@ -1,3 +1,3 @@
-![alt text](https://avatars.mds.yandex.net/get-images-cbir/1350213/N915Q_OWTvKixX6qk-hPcA1409/ocr)
+![alt text](https://media.istockphoto.com/photos/close-up-of-woman-hand-with-a-bill-with-american-dollars-which-people-picture-id1175692346?k=20&m=1175692346&s=612x612&w=0&h=7gQNeylPIirboe9uUhFCJLRAVdHenOqBNI2yxj0cQTY=)
 # Who-Pays-The-Bill.
 * Just a game for a company of friends.
